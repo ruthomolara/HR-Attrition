@@ -1,0 +1,5 @@
+![Capture 1](https://github.com/ruthomolara/HR-Attrition/assets/140560092/c13e1433-2139-432c-8686-b646da8c273e)
+![Capture 2](https://github.com/ruthomolara/HR-Attrition/assets/140560092/8da9ba2b-0412-49ea-b36f-4265ce49d67e)
+![Capture 3](https://github.com/ruthomolara/HR-Attrition/assets/140560092/2651353a-f22f-4302-bf1c-f4c0868819e3)
+![Capture 4](https://github.com/ruthomolara/HR-Attrition/assets/140560092/4c3fc7a1-c781-4fa6-8825-388bd1ac8983)
+![Capture 5](https://github.com/ruthomolara/HR-Attrition/assets/140560092/f74d72c7-1128-4fb2-a97a-5a9b084955ce)
